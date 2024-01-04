@@ -1,2 +1,1 @@
 # ericwugo.github.io
-we
